@@ -32,4 +32,4 @@ plain sight, a brief exposure to what Udaan can grow to be.
   </li>
 </ul>
 
-If you wish to join us, submit articles to upcoming editions, give feedback or just go through past editions please visit [our website](https://udaaniitt.in/) ✨
+If you wish to join us, submit articles, give feedback or just go through past editions please visit [our website](https://udaaniitt.in/) ✨
